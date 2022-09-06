@@ -2,6 +2,11 @@
 ### Junior JavaScript Developer
 <br>
 
+## Contact information
+#### E-mail: anmorgunowa.job@gmail.com
+#### Discord: Idzanaagi (@Idzanaagi)
+#### GitHub: [https://github.com/Idzanaagi](https://github.com/Idzanaagi)
+
 <br>
 
 ## About Me
